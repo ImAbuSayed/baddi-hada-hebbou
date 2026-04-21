@@ -18,7 +18,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا حياتي قربي مني
+> نار الشوق بتكويني
+> عيونك الحلوة سحرتني
+> في حضنك إنتِ خبيني
 > ...
 
 📄 **[View Full Lyrics →](./lyrics.txt)**
